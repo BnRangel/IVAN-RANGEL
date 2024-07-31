@@ -7,6 +7,6 @@ Meu nome é : Ivan Rangel
 
 ### Você pode entrar em contato comigo
 
-alurastartestudante@gmail.com
+00001124144663sp@al.educacao.sp.gov.br
 
   @alurastartestudante 
